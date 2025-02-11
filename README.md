@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Java MERN**
 
-- 📫 How to reach me **nandni1960.be22@chitkara.edu.in**
+- 📫 How to reach me **nandnisingh2923@gmail.com**
 
 - ⚡ Fun fact **I am funny** 
 
